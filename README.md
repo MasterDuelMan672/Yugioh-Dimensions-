@@ -120,14 +120,13 @@ Chowa: please do
 Principal: i need to talk to you children too
 ✨yukari✨ — 07/06/2023 4:59 PM
 Peintasuki: like what?
+Principal: another one of our students has been kidnapped by the cult of the shadow realm last night it’s bad news
 Sylph: who? 
-Principal: wait who said that?
 Crystal:like who is the kidnapped student? Ms.principal
 MasterDuelMan — 07/06/2023 5:03 PM
 The principal handed a note to Mr Drakkon 
 Lora don’t join the cult of the shadow realm if you don’t believe in their way they will kill you they rounded up me and my friends last night because we found out where their hideout was and recorded evidence of their heinous acts. I’m sorry I tried to help you. Whoever gets this note please tell my family I love them. Goodbye
 Saisho
-
 Mr. Drakkon where did you get this 
 ✨yukari✨ — 07/06/2023 5:08 PM
 The principal: this was written by loras previous babysitter saisho please give it to lora
@@ -184,4 +183,4 @@ Ishizu: oh no this is a huge problem marik what can we do?
 ✨yukari✨ — 07/16/2023 7:33 PM
 Marik: I'm not sure yet ishizu
 MasterDuelMan — Today at 6:27 AM
-Principal: another one of our students has been kidnapped by the cult of the shadow realm last night it’s bad news
+
