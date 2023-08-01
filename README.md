@@ -21,15 +21,15 @@ MasterDuelMan — 07/06/2023 1:02 PM
 Marko: we’ll see later right now we need to get home
 Sylph: ok
 MasterDuelMan — 07/06/2023 4:09 PM
-As they started home lora ran up to them with uragir and Celine
+As they started home lora ran up to them with S
 Marko: hey look it’s Lora 
 Lora: hey
 Marko and his friends: hi
 Lora: aw cheer up I have another announcement to make
-Hatemeku: yeah and given your mental state you’re up to no good again
-Lora: not that. I just got accepted into my friends’ cult and my trial is tonight
+Hatemeku: what is it
+Lora: not that. I just got accepted into my friends’ Guild and my trial is tonight
 ✨yukari✨ — 07/06/2023 4:16 PM
-Sylph: wait what the- a CULT!?
+Sylph: oh so you were acce
 MasterDuelMan — 07/06/2023 4:16 PM
 Lora: yup
 Louie: No not that cult not the cult of the shadow realm
