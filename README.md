@@ -7,10 +7,9 @@ Zing: that was a great speech you spoke
 Louie: and yet another awesome tournament
 ✨yukari✨ — 07/06/2023 12:32 PM
 Marko:aw thanks guys how about you lora what did you think?
-
 Lora:it was as beautiful as your eyes marky
 
-Marko:it's marko not marky crystal you seem to mistake me for marky everytime we speak do marky and me look similar? 
+Marko: 
 lora: huh I meant you marko and also you do know marky is a nickname for you right not your actual name
 ✨yukari✨ — 07/06/2023 12:42 PM
 Marko: ohh I never thought of that crystal thanks for correcting me
